@@ -1,0 +1,124 @@
+Farewell Angelina chords
+Joan Baez 1965 "Farewell, Angelina" (Bob Dylan)
+
+Capo II
+e|------------|
+B|------------|
+G|------------|
+D|------------|
+A|-3-----2-3--|
+E|---3-5------|
+
+    C
+Farewell Angelina
+    F            C
+The bells of the crown
+          F         C
+Are being stolen by bandits
+       F          C
+I must follow the sound
+
+The triangle tingles
+        F            G
+And the trumpet play slow
+    Am       Em
+Farewell Angelina
+    Am        Em
+The sky is on fire
+F          C
+And I must go.
+
+        C
+There's no need for anger
+        F           C   
+There's no need for blame
+        F          C
+There's nothing to prove
+     F                 C   
+Ev'rything's still the same
+
+Just a table standing empty
+       F           G
+By the edge of the sea
+    Am       Em
+Farewell Angelina
+    Am     Em
+The sky is trembling
+F          C
+And I must leave.
+
+    C
+The jacks and queens
+        F              C
+Have forsaken the courtyard
+F         C
+Fifty-two gypsies
+    F             C
+Now file past the guards
+
+In the space where the deuce
+        F            G
+And the ace once ran wild
+    Am       Em
+Farewell Angelina
+    Am     Em
+The sky is folding
+     F            C
+I'll see you in a while.
+
+        C  
+See the cross-eyed pirates sitting
+F              C
+Perched in the sun
+
+Shooting tin cans
+       F         C
+With a sawed-off shotgun
+
+And the neighbors they clap
+         F               G
+And they cheer with each blast
+    Am       Em
+Farewell Angelina
+    Am             Em
+The sky's changing color
+    F            C
+And I must leave fast.
+
+C
+King Kong, little elves
+       F             C
+On the rooftops they dance
+
+Valentino-type tangos
+          F             C
+While the make-up man's hands
+
+Shut the eyes of the dead
+         F         G
+Not to embarrass anyone
+    Am       Em
+Farewell Angelina
+    Am       Em
+The sky is embarrassed
+    F        C
+And I must be gone.
+
+    C
+The machine guns are roaring
+    F             C
+The puppets heave rocks
+
+The fiends nail time bombs
+       F            C
+To the hands of the clocks
+
+Call me any name you like
+       F       G
+I will never deny it
+    Am       Em
+Farewell Angelina
+    Am      Em
+The sky is erupting
+       F             C
+I must go where it's quiet.
